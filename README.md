@@ -10,6 +10,13 @@ just come over, let's pour a drink babe
 I hope I ain't calling you too late
 you light my fire
 
+
+Fire is lit.
+Commit to being lit.
+Now you are lit.
+Let's go be lit.
+
+
 ADD A LAMA TO YOUR POEM
 
 pour me a drink of your deisre,
@@ -19,3 +26,4 @@ higher than i will ever go,
 because you give me the strength to surge forward.
 
 LAMA
+
