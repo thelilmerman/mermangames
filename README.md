@@ -9,3 +9,9 @@ you take me higher, higher than i've ever been babe
 just come over, let's pour a drink babe
 I hope I ain't calling you too late
 you light my fire
+
+I want you to stay........
+All along it was a fever
+A cold sweat hot-headed believer
+I threw my hands in the air, said, "Show me something"
+He said, "If you dare, come a little closer" 
