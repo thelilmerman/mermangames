@@ -10,4 +10,25 @@ just come over, let's pour a drink babe
 I hope I ain't calling you too late
 you light my fire
 
+
 Red yellow blue green. Youre welcome 
+
+
+Fire is lit.
+Commit to being lit.
+Now you are lit.
+Let's go be lit.
+
+
+ADD A LAMA TO YOUR POEM
+Not a panda?
+
+pour me a drink of your deisre,
+this way you can take me higher,
+higher than i will ever be,
+higher than i will ever go,
+because you give me the strength to surge forward.
+
+LAMA
+
+
