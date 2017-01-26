@@ -11,6 +11,13 @@ I hope I ain't calling you too late
 you light my fire
 
 
+I want you to stay........
+All along it was a fever
+A cold sweat hot-headed believer
+I threw my hands in the air, said, "Show me something"
+He said, "If you dare, come a little closer" 
+
+
 Red yellow blue green. Youre welcome 
 
 
@@ -30,5 +37,4 @@ higher than i will ever go,
 because you give me the strength to surge forward.
 
 LAMA
-
 
