@@ -11,6 +11,9 @@ I hope I ain't calling you too late
 you light my fire
 
 
+Red yellow blue green. Youre welcome 
+
+
 Fire is lit.
 Commit to being lit.
 Now you are lit.
@@ -27,4 +30,5 @@ higher than i will ever go,
 because you give me the strength to surge forward.
 
 LAMA
+
 
